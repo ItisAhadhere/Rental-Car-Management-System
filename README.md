@@ -67,7 +67,7 @@ Please Select One
 
 **Abdul Ahad Tanvir**  
 📍 Lahore, Pakistan  
-📧 amaanali203000@gmail.com  
+📧 itisahadhere@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/abdul-ahad-tanvir-3b14a9283/)
 
 ---
